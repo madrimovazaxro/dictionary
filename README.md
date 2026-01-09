@@ -1,2 +1,2 @@
 # dictionary
-uy ishi
+dictionary bo'yicha amaliy vazifa
